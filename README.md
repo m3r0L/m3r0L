@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @m3r0L
 - 👀 I’m interested in EVERYTHING
 - 🌱 I’m currently learning WORLD
-- 💞️ I’m looking to collaborate on ALIEN
+- 💞️ I’m looking to collaborate with ALIEN
 <!--
 - 📫 How to reach me ?? 
 -->
